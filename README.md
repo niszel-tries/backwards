@@ -594,6 +594,10 @@ They aren't just friends.
 
 They're together.
 
+Sarah stares at the screen.
+
+She doesn't understand.
+
 She opens an old message.
 
 She reads the conversation.
@@ -610,33 +614,121 @@ Sarah slowly puts the phone down.
 
 She looks at the photo again.
 
-And whispers:
+Sarah: “...Why don't I remember any of this?”
 
-Sarah: “...James.”
+She picks up the phone again.
+
+She keeps scrolling.
+
+There are photos of birthdays.
+
+Places they've visited.
+
+Random pictures of each other.
+
+Inside jokes.
+
+Moments she can't remember living.
+
+Then—
+
+She finds a photo of herself and James together.
+
+Something about it feels different.
+
+She stares at it.
+
+Sarah: “...Why does this feel familiar?”
+
+Her fingers hover over the screen.
+
+She looks toward the room.
+
+Then back at the picture.
+
+She notices something.
+
+An object they're both wearing.
+
+Something she recognizes.
+
+Something she is still wearing.
+
+Sarah looks down.
+
+Her expression changes.
+
+Sarah: “...No.”
+
+She looks back at the photo.
+
+Then at herself.
+
+Then at James.
+
+Her breathing becomes shaky.
+
+Sarah: “James...”
+
+She opens her messages again.
+
+She finds an old conversation.
+
+James's messages.
+
+Her messages.
+
+The way they talked to each other.
+
+The way they knew each other.
+
+The way they talked about their future.
+
+Sarah scrolls further.
 
 Her eyes fill with tears.
 
-She remembers his voice.
+She finally understands.
 
-His laugh.
+They weren't just friends.
 
-The way he teased her.
+They weren't just close.
 
-The way he said—
+They were together.
+
+Sarah whispers:
+
+Sarah: “You were my boyfriend...”
+
+Silence.
+
+She looks at the photo.
+
+Then suddenly remembers something small.
+
+James laughing.
+
+James teasing her.
+
+James saying:
 
 “You haven't changed, Sarah.”
 
-She covers her mouth.
+Sarah covers her mouth.
 
-Then she notices something in one of the photos.
+But then another thought hits her.
 
-Something behind them.
+If James was telling the truth...
 
-Something that shouldn't be there.
+Why couldn't she remember him?
 
-Sarah zooms in.
+Why couldn't she remember any of this?
+
+Sarah looks back at the phone.
 
 Her expression changes.
+
+Sarah: “...What happened to me?”
 
 CUT TO BLACK.
 
@@ -954,7 +1046,7 @@ His face goes pale.
 
 ---
 
-THE CONVERSATION
+THE REVELATION
 
 The car continues through the dark road.
 
@@ -972,53 +1064,173 @@ Sarah: “Hurts what?”
 
 James looks down.
 
-James: “It hurts that you forgot who your boyfriend is.”
+He doesn't answer immediately.
 
-Sarah freezes.
-
-Sarah: “...My what?”
-
-James looks at her.
-
-James: “Your boyfriend.”
-
-Silence.
-
-James: “Don't you know I risked my life just to find you?”
+James: “It hurts that you don't remember.”
 
 Sarah stares at him.
 
-She doesn't know what to say.
+Sarah: “Remember what?”
+
+James looks away.
+
+James: “Me.”
+
+Sarah doesn't understand.
+
+Sarah: “I know you.”
+
+James looks at her.
+
+James: “Do you?”
+
+Silence.
+
+Sarah looks down.
+
+Something about the way he says it bothers her.
+
+She looks at her phone.
+
+The screen lights up.
+
+Her wallpaper is a photo.
+
+Sarah freezes.
+
+It's her.
+
+With James.
+
+Together.
+
+She stares at it.
+
+Sarah: “...When was this?”
+
+James doesn't answer.
+
+Sarah opens her gallery.
+
+She scrolls.
+
+One photo.
+
+Then another.
+
+Then another.
+
+Her expression slowly changes.
+
+There are photos of them everywhere.
+
+Birthdays.
+
+Dates.
+
+Random pictures.
+
+Places they've visited.
+
+Pictures of James sleeping.
+
+Pictures of Sarah laughing.
+
+Pictures of them together.
+
+Sarah: “Why do I have so many pictures of you?”
+
+James gives a quiet laugh.
+
+James: “Because you used to take pictures of everything.”
+
+Sarah keeps scrolling.
+
+Then she finds a picture of the two of them wearing the same object.
+
+Sarah looks down.
+
+She realizes she's still wearing it.
+
+Her hand freezes.
+
+Sarah: “...James.”
+
+James looks at her.
+
+Sarah: “How long?”
+
+James is quiet.
+
+Sarah: “How long have we...?”
+
+James finally answers.
+
+James: “A year and eight months.”
+
+Sarah stares at him.
+
+Her eyes begin to fill with tears.
+
+Sarah: “A year...?”
+
+James nods.
+
+Sarah looks at the phone again.
+
+All those memories.
+
+A year and eight months.
+
+Gone.
+
+Sarah: “I don't remember any of it.”
+
+James looks away.
+
+James: “I know.”
+
+Sarah looks at him.
+
+Sarah: “Why didn't you tell me?”
+
+James stays quiet for a moment.
+
+Then he looks at her.
+
+James: “Because I wanted you to remember me.”
+
+Sarah's expression breaks.
+
+She looks down.
+
+Sarah: “I don't.”
 
 James looks out the window.
 
-James: “You really don't remember me.”
+James: “I know.”
 
-And suddenly—
+Silence.
 
-Sarah notices something.
+Sarah wipes her eyes.
 
-The way he's looking at her.
+Then she looks at him again.
 
-The way he talks to her.
+Sarah: “What happened to me?”
 
-The way he knew she would be loud.
+James doesn't answer.
 
-The way he knew she wouldn't remember.
+Sarah's voice becomes quieter.
 
-Maybe...
+Sarah: “James.”
 
-He wasn't just her friend.
+He finally looks at her.
 
-PLOT TWIST
+James: “That's the part I was trying to tell you.”
 
-Sarah has forgotten James.
+CUT TO BLACK.
 
-Not just the place.
-
-Not just what happened.
-
-Him.
+ENDING — THE MEMORY
 
 ---
 
@@ -1074,7 +1286,7 @@ Then James looks at Sarah.
 
 ---
 
-THE CONVERSATION
+THE REVELATION — JIM ROUTE
 
 James: “It hurts, you know?”
 
@@ -1082,17 +1294,145 @@ Sarah looks at him.
 
 Sarah: “Hurts what?”
 
-James: “It hurts that you forgot who your boyfriend is.”
+James: “It hurts that you don't remember.”
 
-Sarah's face goes blank.
+Sarah looks confused.
 
-...Boyfriend?
+Sarah: “Remember what?”
+
+James looks at her.
+
+James: “Me.”
+
+Sarah: “I know you.”
+
+James gives her a sad smile.
+
+James: “Do you?”
+
+Sarah goes quiet.
+
+She looks at her phone.
+
+Her wallpaper is a photo of herself and James.
+
+Sarah freezes.
+
+Sarah: “...What's this?”
+
+James looks at the screen.
+
+He doesn't answer.
+
+Sarah opens her gallery.
+
+She scrolls.
+
+One photo.
+
+Then another.
+
+Then another.
+
+There are pictures of her and James everywhere.
+
+Sarah: “Why...?”
+
+She keeps scrolling.
+
+Photos of birthdays.
+
+Photos of places they've visited.
+
+Random pictures of each other.
+
+Messages.
+
+Inside jokes.
+
+Memories.
+
+Things she can't remember.
+
+Then she sees a picture of them together wearing the same object.
+
+Sarah looks down.
+
+She realizes she's still wearing it.
+
+Sarah: “...No.”
+
+She looks back at the picture.
+
+Then at James.
+
+Sarah: “How long have we...?”
+
+James answers quietly.
+
+James: “A year and eight months.”
+
+Sarah stares at him.
+
+Sarah: “A year and eight months...”
+
+James nods.
+
+Sarah looks down at her phone.
+
+Sarah: “I don't remember.”
+
+James: “I know.”
+
+Sarah looks at him.
+
+Sarah: “Why didn't you tell me?”
+
+James pauses.
+
+James: “Because I wanted you to remember me.”
+
+Sarah looks away.
+
+James: “Not because I wanted to hide it.”
+
+Sarah's eyes fill with tears.
+
+James: “I just...”
+
+He stops.
+
+James looks down.
+
+James: “I wanted you to look at me and know who I was.”
+
+Sarah can't answer.
+
+She looks at the photos again.
+
+Then she asks the question that matters.
+
+Sarah: “What happened to me?”
+
+James goes silent.
+
+Sarah looks at him.
+
+Sarah: “James.”
+
+He finally looks at her.
+
+James: “That's the part I was trying to tell you.”
+
+CUT TO BLACK.
+
+ENDING — THE MEMORY
 
 ---
 
-STORY STRUCTURE / IMPORTANT GAME ELEMENTS
+IMPORTANT GAME ELEMENTS
 
-Main Branches
+MAIN BRANCHES
 
 BRIGHT HALLWAY
 
@@ -1107,8 +1447,8 @@ DRIPPING HALLWAY
 - Contains the metal door.
 - The metal token unlocks the door.
 - Leads outside into the forest.
-- Leads to the road and the vehicle choices.
-- Leads to the boyfriend/memory reveal.
+- Leads to the road and vehicle choices.
+- Leads toward the memory/boyfriend revelation.
 
 WINDOW HALLWAY
 
@@ -1122,7 +1462,9 @@ WINDOW HALLWAY
 - Leads to the monster encounter.
 - Can branch into the Bright or Dripping hallway.
 
-Items
+---
+
+ITEMS
 
 OLD KEY
 
@@ -1132,13 +1474,19 @@ ITEM ACQUIRED: OLD KEY
 
 James: “Keep it. Might be useful.”
 
+NOTE: The purpose of the OLD KEY is intentionally undecided for now.
+
+---
+
 METAL TOKEN
 
 Used to unlock the circular slot on the metal door.
 
 The token is already in Sarah's possession when she reaches the door.
 
-Important Story Reveals
+---
+
+IMPORTANT STORY REVEALS
 
 - Sarah has memory loss.
 - Sarah initially believes James is simply someone she knows.
@@ -1146,10 +1494,16 @@ Important Story Reveals
 - James knows she has forgotten something.
 - James is actually Sarah's boyfriend.
 - Sarah has forgotten not only the location and events, but James himself.
-- Photos and old messages later confirm their relationship.
-- Something strange can be seen in one of the photos after Sarah returns home.
+- Sarah's own phone and photos provide evidence of their relationship.
+- Sarah discovers that they were together for a year and eight months.
+- James deliberately doesn't simply tell Sarah everything because he wants her to remember him herself.
+- The boyfriend revelation becomes part of a larger mystery: what happened to Sarah?
+- James knows something about what happened.
+- The story ends the revelation by implying that James was already trying to tell Sarah the truth.
 
-Recurring / Suspicious Details
+---
+
+RECURRING / SUSPICIOUS DETAILS
 
 - “He's going to hear us.”
 - James knows Sarah will be loud.
@@ -1160,7 +1514,18 @@ Recurring / Suspicious Details
 - The window has an unknown message.
 - Something is present behind James during the window-hallway encounter.
 - Something appears in the background of one of Sarah and James's photos.
+- Sarah recognizes objects associated with her relationship even though she cannot remember the relationship itself.
 
-NOTE: "[THE MESSAGE — TBD]", the exact monster design/identity, the purpose of the OLD KEY, and the meaning of the yellow car/bandage are intentionally left undecided.
+---
 
-NOTE: The story currently has some routes that converge into other routes. This is preserved exactly as planned rather than changing the branching structure.
+CURRENT UNDECIDED ELEMENTS
+
+- The message written on the window.
+- The exact monster design/identity.
+- The purpose of the OLD KEY.
+- The meaning of the yellow car.
+- The identity/reason for the bandaged driver.
+- The meaning of the strange dents on the other vehicle.
+- What exactly happened to Sarah.
+- What James knows about what happened to Sarah.
+- What is visible in the background of the final photograph.
